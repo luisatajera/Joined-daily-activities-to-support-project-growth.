@@ -1,1 +1,1 @@
-# Joined-daily-activities-to-support-project-growth.
+# Joined-daily-activities-to-support-project-growth.h
